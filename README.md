@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi look at me  👋
 
 - 🔭 I’m currently working on china
 - 🌱 I’m currently learning java
